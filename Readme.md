@@ -8,4 +8,4 @@
 
 :woman_technologist: **ViviRamos**
 
-* LinkedIn: [*LinkedIn*](linkedin.com/in/viviane-ramos-luz-346169187)
+[*LinkedIn*](linkedin.com/in/viviane-ramos-luz-346169187)
